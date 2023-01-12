@@ -1,2 +1,0 @@
-"Chanchito FELIZ "
-"CHAMCHITO FELIZ "
